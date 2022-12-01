@@ -18,7 +18,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1bsr3lKi79ni1lXlTQ-5HT7oXCF2gk8ap/view?usp=sharing](https://drive.google.com/file/d/1bsr3lKi79ni1lXlTQ-5HT7oXCF2gk8ap/view?usp=sharing)
 
-- ⚡ Fun fact **I think I'm curious, enthusiast and a fun-loving person.**
+- ⚡ Fun fact **I think I'm curious, enthusiast and a fun-loving person and also I'm a Musician :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
